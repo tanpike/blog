@@ -14,7 +14,7 @@ permalink: /tags/
         <ul class="tag-list">
             {% for tag in site.post_tags %}
             <li>
-                <a href="{{tag.url}}">{{tag.title}}</a>        
+                <a href="{% include tag_url tag=tag %}">{{tag.title}}</a>        
             </li>
             {% endfor %}
         </ul>
