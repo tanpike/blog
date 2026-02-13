@@ -2,8 +2,8 @@
 title: Tan Blog
 url: https://tanpike.github.io/blog
 paginate: 1
-paginate_path: "/blog/page:num/"
 baseurl: "/blog"
+paginate_path: "/baseurl/page:num/"
 permalink: pretty
 
 # Gems
