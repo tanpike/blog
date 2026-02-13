@@ -47,3 +47,17 @@ nav:
 
   - title: About
     url: /blog/about
+
+#collections (for tags)
+collections:
+  post_tags:
+    permalink: /tags/:name/
+    output: true
+
+defaults:
+  - scope:
+      path: ''
+      type: post_tags
+    values:
+      permalink: "/tags/:name/"
+      layout: tag

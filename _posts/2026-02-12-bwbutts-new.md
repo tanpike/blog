@@ -1,6 +1,9 @@
 ---
 layout: post
 title: Latest coodness
+tags:
+  - nsfw
+  - aht
 ---
 yeah
 
