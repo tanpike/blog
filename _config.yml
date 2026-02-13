@@ -51,7 +51,7 @@ nav:
 #collections (for tags)
 collections:
   post_tags:
-    permalink: /tags/:name/
+    permalink: /blog/tags/:name/
     output: true
 
 defaults:
@@ -59,5 +59,5 @@ defaults:
       path: ''
       type: post_tags
     values:
-      permalink: "/tags/:name/"
+      permalink: "/blog/tags/:name/"
       layout: tag
