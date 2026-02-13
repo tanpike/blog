@@ -1,7 +1,7 @@
 {%- capture url -%}
     {% for pt in site.post_tags %}
         {% if pt.title == include.tag %}
-            {{ pt.url | relative_url }}
+            {{ pt.url }}
         {% endif %}
     {% endfor %}
 {%- endcapture -%}
