@@ -1,3 +1,4 @@
+---
 title: Sunday hotness 2026-02-22
 date: 2026-02-22
 layout: post
