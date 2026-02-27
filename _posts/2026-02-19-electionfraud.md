@@ -14,6 +14,7 @@ tags:
 [DJT International Airport](https://www.wesh.com/article/house-votes-change-florida-airport-donald-j-trump-international/70411746)
 * Donald Trump trademarks airport name
 * a week later FL House votes to rename Palm Beach airport to DJT's trademarked name
-* taxpayers gonna pay the licensing fees for that name
+* taxpayers gonna pay the licensing fees for that name.
+
 you voted for this, MAGA trash.
 
