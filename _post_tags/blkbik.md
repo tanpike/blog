@@ -5,8 +5,8 @@ layout: tag
 
 # Black Bikinis
 ## 2026-03-04
-<div><iframe src="https://files.catbox.moe/7dxw3z.webm" width="500" height="500" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
-<div><iframe src="https://files.catbox.moe/lkbmlr.webm" width="500" height="500" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
+<div><iframe src="https://files.catbox.moe/7dxw3z.webm" width="500" height="500" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; loop; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
+<div><iframe src="https://files.catbox.moe/lkbmlr.webm" width="500" height="500" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="truwe" allow="autoplay; clipboard-write; encrypted-media; loop; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
 
 
 ![blkbik](https://theblast.prod.media.wordpress.mattersmedia.io/brand-img/123/906x1598/2024/06/14061425/IMG_2035.jpg)
