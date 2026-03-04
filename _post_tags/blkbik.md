@@ -23,7 +23,7 @@ layout: tag
 ![EmilyElizabeth](https://i.pinimg.com/originals/f5/53/1e/f5531eefa25afc3062345b5a8f2302da.jpg)
 ![EmilyElizabeth](https://theblast.prod.media.wordpress.mattersmedia.io/brand-img/123/910x1598/2024/02/26132323/IMG_1081.jpg)
 ![EmliyElizabeth](https://i.pinimg.com/736x/81/82/2f/81822f368300f6e397e1ffa3753f9a21.jpg)
-![EmilyElizabeth](tps://i.redd.it/emily-elizabeth-v0-nebi34kkkaxf1.jpeg?auto=webp&s=a0c4bf2dc7c9aa215772e7223e629162844886f1)
+![EmilyElizabeth](https://i.redd.it/emily-elizabeth-v0-nebi34kkkaxf1.jpeg?auto=webp&s=a0c4bf2dc7c9aa215772e7223e629162844886f1)
 ![EmilyElizabeth](https://i.pinimg.com/736x/ed/87/31/ed8731c9f9a17b670e3337ba2e368590.jpg)
 
 ## misc
