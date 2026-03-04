@@ -5,8 +5,8 @@ layout: tag
 
 # Black Bikinis
 ## 2026-03-04
-<div><iframe src="https://files.catbox.moe/7dxw3z.webm" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
-<div><iframe src="https://files.catbox.moe/lkbmlr.webm" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="truwe" loop=true allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
+<div><iframe src="https://files.catbox.moe/7dxw3z.webm" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
+<div><iframe src="https://files.catbox.moe/lkbmlr.webm" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="truwe" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
 
 ![blkbik](https://photobooth.cdn.sports.ru/preset/wysiwyg/7/44/090f13a494c40a1e707efca545a67.jpeg)
 ![AnnaLouise](https://i.pinimg.com/videos/thumbnails/originals/bb/6c/1a/bb6c1a191e51dcc4539c9f197113ec53.0000000.jpg)
