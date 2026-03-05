@@ -7,7 +7,9 @@ layout: tag
 ## 2026-03-04
 <div><iframe src="https://files.catbox.moe/7dxw3z.webm" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
 <div><iframe src="https://files.catbox.moe/lkbmlr.webm" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="truwe" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
+<div><iframe src="https://files.catbox.moe/v3u0xy.webm" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="truwe" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe></div>
 
+![victoriaXavier](https://files.catbox.moe/k6tke9.jpg)
 ![blkbik](https://photobooth.cdn.sports.ru/preset/wysiwyg/7/44/090f13a494c40a1e707efca545a67.jpeg)
 ![AnnaLouise](https://i.pinimg.com/videos/thumbnails/originals/bb/6c/1a/bb6c1a191e51dcc4539c9f197113ec53.0000000.jpg)
 ![blkbik](https://i.pinimg.com/originals/92/ac/6c/92ac6c089e200d2564e54f86bf6e8bff.jpg)
@@ -29,7 +31,8 @@ layout: tag
 ![EmilyElizabeth](https://i.pinimg.com/originals/f5/53/1e/f5531eefa25afc3062345b5a8f2302da.jpg)
 ![EmilyElizabeth](https://theblast.prod.media.wordpress.mattersmedia.io/brand-img/123/910x1598/2024/02/26132323/IMG_1081.jpg)
 ![EmliyElizabeth](https://i.pinimg.com/736x/81/82/2f/81822f368300f6e397e1ffa3753f9a21.jpg)
-![EmilyElizabeth](https://i.redd.it/emily-elizabeth-v0-nebi34kkkaxf1.jpeg?auto=webp&s=a0c4bf2dc7c9aa215772e7223e629162844886f1)
+![EmilyElizabeth](https://i.redd.it/emily-elizabeth-v0-nebi34kkkaxf1.jpeg?width=1080&crop=smart&auto=webp&s=a0c4bf2dc7c9aa215772e7223e629162844886f1)
+
 ![EmilyElizabeth](https://i.pinimg.com/736x/ed/87/31/ed8731c9f9a17b670e3337ba2e368590.jpg)
 
 ## misc
