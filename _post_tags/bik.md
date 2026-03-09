@@ -1,5 +1,5 @@
 ---
-title: Bikinis
+title: bikinis
 layout: tag
 ---
 

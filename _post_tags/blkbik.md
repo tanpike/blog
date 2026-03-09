@@ -1,5 +1,5 @@
 ---
-title: Black Bikinis
+title: black bikinis
 layout: tag
 ---
 
