@@ -3,8 +3,9 @@ title: AI roundup
 date: 2026-03-07
 layout: post
 tags:
-  - ai
   - politics
+  - ai
+
 ---
 ## AI messes with your head
 [your brain on chatgpt](https://www.media.mit.edu/publications/your-brain-on-chatgpt/)
