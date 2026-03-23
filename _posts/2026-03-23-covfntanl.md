@@ -9,3 +9,5 @@ tags:
 
 
 <div><iframe src="https://media.redgifs.com/PuzzlingFreshCoelacanth-mobile.m4s" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
+
+![covftl](https://i.redd.it/lppqfdh5imqg1.jpg)
