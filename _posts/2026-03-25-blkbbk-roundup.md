@@ -6,6 +6,10 @@ tags:
   - blkbik
 ---
 
+## misc
+![blkbik](https://korzik.net/uploads/posts/2019-07/1562235064_korzik_net_2c-5.jpg)
+![blkbik](https://korzik.net/uploads/posts/2019-07/1562235047_korzik_net_2c-12.jpg)
+
 ## Elizabeth Turner
 ![lizT](https://www.digitalminx.com/photos/models/t/turner_elizabeth/ETclough001.jpg)
 ![lizT](https://www.digitalminx.com/photos/models/t/turner_elizabeth/ETclough002.jpg)
