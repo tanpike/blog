@@ -17,6 +17,8 @@ tags:
 ![lizT](https://www.digitalminx.com/photos/models/t/turner_elizabeth/ETgigicbts021.jpg)
 ![lizT](https://www.digitalminx.com/photos/models/t/turner_elizabeth/ETgigicbts051.jpg)
 ![lizT](https://www.digitalminx.com/photos/models/t/turner_elizabeth/ETgigicswimwear059.jpg)
+![lizT](https://www.digitalminx.com/photos/models/t/turner_elizabeth/ETlunabswimwear026.jpg)
+![lizT](https://www.digitalminx.com/photos/models/t/turner_elizabeth/ETmizani014.jpg)
 
 ## black bikinis
 <div><iframe src="https://media.redgifs.com/ScornfulSnappyYellowbelliedmarmot.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>

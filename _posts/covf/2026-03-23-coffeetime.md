@@ -6,5 +6,4 @@ tags:
   - covf
 ---
 
-![covfporch](https://i.redd.it/94i7ltfetlqg1.jpeg)
 ![covftrm](https://i.redd.it/62s3f6oq7oqg1.jpeg)
