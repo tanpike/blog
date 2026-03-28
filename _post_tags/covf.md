@@ -4,7 +4,7 @@ layout: tag
 ---
 
 ## 2026-03-28
-![covf](https://i.redd.it/676fygi69srg1.jpg
+![covf](https://i.redd.it/676fygi69srg1.jpg)
 
 ## 2026-03-07
 ![covf](https://static-ca-cdn.eporner.com/gallery/Sw/2D/1cPEsDM2DSw/984434-covf-EatShitMAGAtrash.gif)
