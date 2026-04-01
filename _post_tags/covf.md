@@ -4,6 +4,7 @@ layout: tag
 ---
 ## 2026-03-31
 ![covf](https://s00.yaplakal.com/pics/pics_original/0/7/5/20433570.jpg)
+![covf](https://i.redd.it/q3i10omzyfsg1.jpeg)
 
 ## 2026-03-28
 ![covf](https://i.redd.it/676fygi69srg1.jpg)
