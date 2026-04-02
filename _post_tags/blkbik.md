@@ -21,7 +21,6 @@ layout: tag
 
 
 ## 2026-03-22
-![blkbik](https://i.redd.it/f13gsi246spg1.jpeg)
 ![blkbik](https://i.redd.it/sgx6t4h768qg1.jpeg)
 ![nash](https://i.redd.it/fu9uic3w7ipg1.jpg)
 ![blkbik](https://i.redd.it/lkt0ezfdx6qg1.jpg)
