@@ -2,6 +2,19 @@
 title: blkbik
 layout: tag
 ---
+
+## 2026-04-04
+<div><iframe src="https://media.redgifs.com/TrimShyDobermanpinscher.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
+
+## 2026-04-02
+![blkbik](https://i.redd.it/4nikmgoa74sg1.jpeg)
+(https://i.redd.it/i7h6dfglftrg1.jpeg)
+(https://i.redd.it/gc7k5ljy12rg1.jpeg)
+(https://i.redd.it/tfcob6fr0uqg1.jpeg)
+(https://i.redd.it/uy68l8xqctqg1.jpeg)
+(https://i.redd.it/n4wivvz2u0qg1.png)
+
+
 ## 2026-04-01
 ![pennyLane](https://i.redd.it/lnu97ayyyksg1.jpg)
 
