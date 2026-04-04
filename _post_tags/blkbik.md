@@ -8,11 +8,11 @@ layout: tag
 
 ## 2026-04-02
 ![blkbik](https://i.redd.it/4nikmgoa74sg1.jpeg)
-(https://i.redd.it/i7h6dfglftrg1.jpeg)
-(https://i.redd.it/gc7k5ljy12rg1.jpeg)
-(https://i.redd.it/tfcob6fr0uqg1.jpeg)
-(https://i.redd.it/uy68l8xqctqg1.jpeg)
-(https://i.redd.it/n4wivvz2u0qg1.png)
+![blkbik](https://i.redd.it/i7h6dfglftrg1.jpeg)
+![blkbik](https://i.redd.it/gc7k5ljy12rg1.jpeg)
+![blkbik](https://i.redd.it/tfcob6fr0uqg1.jpeg)
+![blkbik](https://i.redd.it/uy68l8xqctqg1.jpeg)
+![blkbik](https://i.redd.it/n4wivvz2u0qg1.png)
 
 
 ## 2026-04-01
