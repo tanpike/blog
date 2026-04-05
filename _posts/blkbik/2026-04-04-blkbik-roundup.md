@@ -9,6 +9,9 @@ tags:
 ## 2026-04-04
 <div><iframe src="https://media.redgifs.com/TrimShyDobermanpinscher.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
+![blkbik](https://i0.wp.com/www.digitalminx.com/photos/models/h/hazell_keeley/hazell0005.jpg)
+![blkbik](https://i.redd.it/ave6ogcjrctg1.jpeg)
+
 ## 2026-04-02
 ![blkbik](https://i.redd.it/4nikmgoa74sg1.jpeg)
 ![blkbik](https://i.redd.it/i7h6dfglftrg1.jpeg)
