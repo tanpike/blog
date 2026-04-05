@@ -7,6 +7,7 @@ tags:
 ---
 
 ## misc
+![blkbik](https://images.scrolller.com/gamma/damn-cwqntu20sq-1080x1350.jpg)
 ![blkbik](https://korzik.net/uploads/posts/2019-07/1562235064_korzik_net_2c-5.jpg)
 ![blkbik](https://korzik.net/uploads/posts/2019-07/1562235047_korzik_net_2c-12.jpg)
 
