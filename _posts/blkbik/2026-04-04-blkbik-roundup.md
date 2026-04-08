@@ -6,6 +6,8 @@ tags:
   - blkbik
 ---
 ## 2026-04-08
+![haircut](https://35photo.pro/photos_series/1784/1784928.jpg)
+![haircut](https://35photo.pro/photos_series/1784/1784930.jpg)
 ![fenice](https://images.scrolller.com/pico/adriana-fenice-v9wxww0z8y.jpg)
 ![blkbik](https://images.scrolller.com/femto/bikini-7zwqh37nw7-740x925.jpg)
 ![blkbikSalma](https://images.scrolller.com/pico/salma-hayek-54-czxo6hncjm.jpg)
