@@ -7,6 +7,7 @@ tags:
 ---
 ## 2026-04-08
 
+![blkbik](https://i.redd.it/7ako0fnqu3ug1.jpg)
 <div><iframe src="https://proton.scrolller.com/WillingBlackIsopod-mobile.webm" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
 ![blackbik](https://images.scrolller.com/pico/curvaceous-axqskt6cyn.jpg)
