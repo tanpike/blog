@@ -5,6 +5,10 @@ layout: post
 tags:
   - blkbik
 ---
+## 2026-04-13
+![tervort](https://i.redd.it/0v0lya3g2wug1.jpeg)
+![blkbik](https://i.redd.it/tru5u5j5yxug1.jpeg)
+
 ## 2026-04-12
 ![blkbik](https://i.redd.it/oce4q4a1amsg1.jpeg)
 <div><iframe src="https://media.redgifs.com/TenseCoolLeafhopper.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
