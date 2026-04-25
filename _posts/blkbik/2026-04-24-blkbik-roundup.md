@@ -6,7 +6,10 @@ tags:
 ---
 
 ## 2026-04-25
+<div><iframe src="https://media.redgifs.com/NecessaryPerfectQuillback.mp4" width="500" height="500" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
+
 ![blkbik](https://i.redd.it/2anntdgcazwg1.jpeg)
+
 
 ## 2026-04-24
 ![blkbik](https://i.redd.it/f5svljcuqxwg1.jpg)
