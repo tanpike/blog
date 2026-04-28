@@ -15,7 +15,6 @@ nsfw sometimes is photos, videos and paintings.
 ## other
 ![olgaKaminska](https://img4.hotnessrater.com/7367150/photo_EatShitMAGAtrash.jpg)
 
-<div><iframe src="https://media.redgifs.com/WearyPlumUmbrellabird.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
 ![venice2009](https://i0.wp.com/img163.imagetwist.com/i/15995/spg6rm0v0lzb.jpg/full_054_1212200041589158.jpg)
 ![apples](https://warnet.ws/uploads/ddfe80eebd051ca4c87136a52724bdbd.jpg)
