@@ -8,6 +8,8 @@ tags:
 ![blkbik](https://i.redd.it/iu0q8po5bqyg1.jpeg)
 ![blkbik](https://i.redd.it/ijq7xcgyxbyg1.jpeg)
 ![blkbik](https://i.redd.it/09ua6163spyg1.jpeg)
+![blkbik](https://i.redd.it/rlbz8pohpyxg1.jpeg)
+
 https://media.redgifs.com/FaintNoisyPrairiedog.mp4
 
 
