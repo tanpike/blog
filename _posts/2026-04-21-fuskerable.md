@@ -15,4 +15,7 @@ tags:
   https://www.alrincon.com/2026/christianvanduuren/[1-38].jpg
 </pre>
 
-
+## player.hu
+<pre>
+  https://player.hu/uploads/2019/06/[01-19]-[1-18].jpg
+</pre>
