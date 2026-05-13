@@ -7,7 +7,8 @@ layout: tag
 ![smok](https://i.redd.it/ulrd0kw4bqug1.jpg)
 ![smok](https://player.hu/uploads/2021/09/10-11.jpg)
 ![smok](https://player.hu/uploads/2021/09/13-6.jpg)
-
+![smok](https://nevsepic.com.ua/uploads/posts/2011-03/1299711579_nu_3_80_nevsepic.com.ua.jpg
+)
 ## 2026-04-28
 ![smok](https://warnet.ws/uploads/257feb99e38bbd5d75a32bd8221a4166.jpg)
 
