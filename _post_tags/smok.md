@@ -2,6 +2,10 @@
 title: smoking
 layout: tag
 ---
+
+![smok](https://i.redd.it/ogsfurnxe02h1.jpg)
+![smok](https://i.redd.it/31zt929ojm1h1.jpg)
+![smok](https://i.redd.it/667s519ojm1h1.jpg)
 ![smok](https://warnet.ws/uploads/2ef85a6301f4315577fe4c127b680120.jpg)
 ![smok](https://warnet.ws/uploads/f465b1706f01f5f8df9ca66755ffa6a2.jpg)
 ![smok](https://i.redd.it/ulrd0kw4bqug1.jpg)
