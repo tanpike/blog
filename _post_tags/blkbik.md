@@ -6,14 +6,10 @@ layout: tag
 # Black Bikinis
 
 [177537](https://cdn6.babeherder.com/repo-0002/videos/00/17/75/00177537.mp4)
-
-https://cdn6.babeherder.com/repo-0002/videos/00/18/46/00184641.mp4
-
-https://cdn6.babeherder.com/repo-0002/videos/00/18/45/00184525.mp4
-
-https://cdn6.babeherder.com/repo-0002/videos/00/18/46/00184615.mp4
-
-https://cdn6.babeherder.com/repo-0002/videos/00/18/45/00184539.mp4
+[184641](https://cdn6.babeherder.com/repo-0002/videos/00/18/46/00184641.mp4)
+[184525](https://cdn6.babeherder.com/repo-0002/videos/00/18/45/00184525.mp4)
+[184615](https://cdn6.babeherder.com/repo-0002/videos/00/18/46/00184615.mp4)
+[184539](https://cdn6.babeherder.com/repo-0002/videos/00/18/45/00184539.mp4)
 
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/11/00000003-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/11/00000091-full.jpg)
