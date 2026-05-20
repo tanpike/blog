@@ -3,6 +3,7 @@ title: smoking
 layout: tag
 ---
 
+![smok](https://warnet.ws/uploads/7cfe76acde6eb928dc88f34846fc5b8c.jpg)
 ![smok](https://i.redd.it/ogsfurnxe02h1.jpg)
 ![smok](https://i.redd.it/31zt929ojm1h1.jpg)
 ![smok](https://i.redd.it/667s519ojm1h1.jpg)
