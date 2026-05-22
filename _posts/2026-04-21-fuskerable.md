@@ -27,3 +27,10 @@ tags:
 <pre>
   https://player.hu/uploads/2019/06/[01-19]-[1-18].jpg
 </pre>
+
+## babeherder
+<pre>
+  https://cdn6.babeherder.com/repo-0002/babes/2017/11/[01-30]/00000[001-150]-full.jpg
+  https://cdn6.babeherder.com/repo-0002/videos/00/18/47/00184766.mp4
+</pre>
+
