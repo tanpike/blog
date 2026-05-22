@@ -44,13 +44,16 @@ layout: tag
 ![blkbik](https://player.hu/uploads/2019/10/05-10.jpg)
 ![blkbik](https://player.hu/uploads/2019/10/11-6.jpg)
 
-https://media.redgifs.com/OrdinaryDelectableAnemonecrab.mp4
 
-https://media.redgifs.com/GeneralFaintFlamingo.m4s
+<div><iframe src="https://media.redgifs.com/OrdinaryDelectableAnemonecrab.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
-https://cdn6.babeherder.com/repo-0002/videos/00/18/47/00184766.mp4
+<div><iframe src="https://media.redgifs.com/GeneralFaintFlamingo.m4s" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
-https://cdn6.babeherder.com/repo-0002/videos/00/18/47/00184770.mp4
+<div><iframe src="https://cdn6.babeherder.com/repo-0002/videos/00/18/47/00184766.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
-https://cdn6.babeherder.com/repo-0002/videos/00/16/15/00161597.mp4
+<div><iframe src="https://cdn6.babeherder.com/repo-0002/videos/00/18/47/00184770.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
+
+<div><iframe src="https://cdn6.babeherder.com/repo-0002/videos/00/16/15/00161597.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
+
+<div><iframe src="" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
