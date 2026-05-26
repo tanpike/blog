@@ -46,19 +46,22 @@ layout: tag
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/21/00000106-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/22/00000028-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/23/00000003-full.jpg)
-![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/24/00000064-full.jpg)
+![blkbik](https://i.redd.it/w53otpk3mm2h1.jpeg)
 
-
-[177537](https://cdn6.babeherder.com/repo-0002/videos/00/17/75/00177537.mp4)
-[184641](https://cdn6.babeherder.com/repo-0002/videos/00/18/46/00184641.mp4)
 [184525](https://cdn6.babeherder.com/repo-0002/videos/00/18/45/00184525.mp4)
 [184615](https://cdn6.babeherder.com/repo-0002/videos/00/18/46/00184615.mp4)
 [184539](https://cdn6.babeherder.com/repo-0002/videos/00/18/45/00184539.mp4)
 
+## done
+![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/24/00000064-full.jpg)
+![blkbik](https://i.redd.it/anp0rdikn7pg1.jpeg)
+[177537](https://cdn6.babeherder.com/repo-0002/videos/00/17/75/00177537.mp4)
+![blkbik](https://i.redd.it/8rfzktvhq23h1.jpg)
+![blkbik](https://i.redd.it/vd2n2gelyw2h1.jpeg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/11/00000003-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/11/00000091-full.jpg)
 
-## done
+<div><iframe src="https://cdn6.babeherder.com/repo-0002/videos/00/18/46/00184641.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
 <div><iframe src="https://media.redgifs.com/MetallicFlatAlpinegoat.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
