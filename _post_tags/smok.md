@@ -2,7 +2,10 @@
 title: smoking
 layout: tag
 ---
-
+![smok](https://i.redd.it/mh0fiu3gkz1h1.jpeg)
+![smok](https://i.redd.it/2w6ws9mfln1h1.jpeg)
+![smok](https://i.redd.it/r9s49o9o5cng1.jpeg)
+![smok](https://i.redd.it/96ae6hyw54lg1.jpeg)
 ![smok](https://cameralabs.org/aeonmedia/zenfoto/5746/36817/edita-vilkevichute-industrie-magazine-fotograf-lakhlan-bejli_large.jpg)
 ![smok](https://cameralabs.org/aeonmedia/zenfoto/5746/36828/edi-kempbell-industrie-magazine-fotograf-lakhlan-bejli_large.jpg)
 ![smok](https://s1d2.turboimg.net/sp/11717f1ea601a9f1112aaee90b4c71c7/mosteroticteens020.jpg)
@@ -15,8 +18,11 @@ layout: tag
 ![smok](https://i.redd.it/ulrd0kw4bqug1.jpg)
 ![smok](https://player.hu/uploads/2021/09/10-11.jpg)
 ![smok](https://player.hu/uploads/2021/09/13-6.jpg)
-![smok](https://nevsepic.com.ua/uploads/posts/2011-03/1299711579_nu_3_80_nevsepic.com.ua.jpg
-)
+![smok](https://nevsepic.com.ua/uploads/posts/2011-03/1299711579_nu_3_80_nevsepic.com.ua.jpg)
+![smok](https://ic.pics.livejournal.com/inna1903gr/30601390/15975212/15975212_original.jpg)
+![smok](https://i.redd.it/qxzu3frzhbhg1.jpeg)
+![smok](https://i.redd.it/6ad31yh3pqfg1.jpeg)
+
 ## 2026-04-28
 ![smok](https://warnet.ws/uploads/257feb99e38bbd5d75a32bd8221a4166.jpg)
 
