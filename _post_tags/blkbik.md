@@ -39,17 +39,16 @@ layout: tag
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/08/00000001-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/08/00000003-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/08/00000048-full.jpg)
-![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000141-full.jpg)
-![blkbik](http://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000150-full.jpg)
-![blkbik](http://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000070-full.jpg)
-![blkbik](http://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000058-full.jpg)
-![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000070-full.jpg)
-![blkbik](http://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000046-full.jpg)
 
 [184525](https://cdn6.babeherder.com/repo-0002/videos/00/18/45/00184525.mp4)
 [184615](https://cdn6.babeherder.com/repo-0002/videos/00/18/46/00184615.mp4)
 
 ## done
+![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000141-full.jpg)
+![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000150-full.jpg)
+![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000058-full.jpg)
+![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000070-full.jpg)
+![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/19/00000046-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/22/00000028-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/23/00000003-full.jpg)
 ![blkbik](https://i.redd.it/w53otpk3mm2h1.jpeg)
