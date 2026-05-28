@@ -39,3 +39,8 @@ tags:
   https://static-eu-cdn.eporner.com/gallery/nl/3t/PPTYfmW3tnl/4289[155-283]-blkbik.jpg
 </pre>
 
+## elitebabes
+<pre>
+  https://cdn.elitebabes.com/content/200469/00[01-19]-[01-15].jpg
+  thumbnails https://cdn.elitebabes.com/content/260425/0010-[01-15]_w400.jpg
+</pre>
