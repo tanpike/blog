@@ -134,11 +134,12 @@ layout: tag
 ## misc 
 ![bwnu](https://i.redd.it/wi5y8fi2hp3h1.jpeg)
 ![bwnu](https://i.redd.it/tcb1o0kalh3h1.jpeg)
-![bwnu](https://i.redd.it/7ew4u6rxpl3h1.jpg)
-![bwnu](https://i.redd.it/y56kktrwpl3h1.jpg)
-![bwnu](https://i.redd.it/hh34p0zdim3h1.jpg)
 
 # Done
+
+![bwnu](https://i.redd.it/y56kktrwpl3h1.jpg)
+![bwnu](https://i.redd.it/hh34p0zdim3h1.jpg)
+![bwnu](https://i.redd.it/7ew4u6rxpl3h1.jpg)
 
 ## Callan O'Conor
 ![bwnu](https://www.hotcelebshome.com/wp-content/uploads/2019/08/Callan-OConor-Naked-Photoshoot-7.jpeg)
