@@ -43,4 +43,7 @@ tags:
 <pre>
   https://cdn.elitebabes.com/content/200469/00[01-19]-[01-15].jpg
   thumbnails https://cdn.elitebabes.com/content/260425/0010-[01-15]_w400.jpg
+  start with https://cdn.elitebabes.com/content/200601/0001-01_w400.jpg
+      format is yymm##/00##-##
+      
 </pre>
