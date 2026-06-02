@@ -20,6 +20,8 @@ layout: tag
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/18/00000138-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/22/00000067-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/22/00000081-full.jpg)
+
+## done
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/24/00000028-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/24/00000054-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/24/00000068-full.jpg)
@@ -31,8 +33,6 @@ layout: tag
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/30/00000103-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/10/30/00000134-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/01/00000023-full.jpg)
-
-## done
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/04/00000017-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/04/00000010-full.jpg)
 ![blkbik](https://cdn6.babeherder.com/repo-0002/babes/2017/11/04/00000097-full.jpg)
