@@ -10,6 +10,8 @@ layout: tag
 ## done
 ![jo-skriver](https://i.redd.it/8iwcklvo755h1.jpg)
 ![blkbik](https://warnet.ws/uploads/2db5f3e7177e01959c4f2f2eee14e2e5.jpg)
+![blkbik](https://i0.wp.com/img27.imagetwist.com/i/22030/z2kwee5q9tjg.jpg/0001.jpg)
+![brittny-baylis](https://unews.pro/insert/20210212/Unews20210212tatoo_14.jpg)
 
 <div><iframe src="https://media.redgifs.com/WornSorrowfulGnat.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
