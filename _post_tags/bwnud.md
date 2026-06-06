@@ -91,12 +91,16 @@ layout: tag
 
 
 ## Waclaw Wantuch
+
 ![waclaw-wantuch](https://nevsepic.com.ua/uploads/posts/2011-02/1298334603__27.jpg)
 ![waclaw-wantuch](https://nevsepic.com.ua/uploads/posts/2011-02/1298334588__33.jpg)
 ![waclaw-wantuch](https://nevsepic.com.ua/uploads/posts/2011-02/1298334619__47.jpg)
 ![waclaw-wantuch](https://nevsepic.com.ua/uploads/posts/2011-02/1298334696_u_3.jpg)
 
+# Done
+
 ## Lachlan Bailey
+
 ![lachlan-bailey](https://cameralabs.org/aeonmedia/zenfoto/5746/36818/edita-vilkevichute-vogue-japan-2016-fotograf-lakhlan-bejli_large.jpg)
 ![lachlan-bailey](https://cameralabs.org/aeonmedia/zenfoto/5746/36844/andrea-diakonu-holiday-magazine-fotograf-lakhlan-bejli-8_large.jpg)
 ![lachlan-bailey](https://cameralabs.org/aeonmedia/zenfoto/5746/36912/feliche-nova-nordkhoff-s-velosipedom-the-wall-street-journal-magazine-aprel-2020-goda-fotograf-lakhlan-bejli_large.jpg)
@@ -111,8 +115,6 @@ layout: tag
 ![bwnu](https://i.redd.it/8fg36awyh6wg1.jpeg)
 ![bwnu](https://i.redd.it/pahp3phf4ykg1.jpeg)
 ![bwnu](https://i.redd.it/dqxnxfkmrykg1.jpeg)
-
-# Done
 
 ## misc
 ![bwnu](https://i.redd.it/nkzeoldke3lg1.jpeg)
