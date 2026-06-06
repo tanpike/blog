@@ -2,6 +2,8 @@
 title: smoking
 layout: tag
 ---
+
+![smok](https://i.redd.it/7tef4719ib5h1.jpeg)
 ![smok](https://i.redd.it/mh0fiu3gkz1h1.jpeg)
 ![smok](https://i.redd.it/2w6ws9mfln1h1.jpeg)
 ![smok](https://i.redd.it/r9s49o9o5cng1.jpeg)
@@ -33,6 +35,8 @@ layout: tag
 ![monica-cima](https://i.redd.it/noa8wch9ev3h1.jpg)
 ![loulou-robert](https://i.redd.it/r2dhi8c5sy3h1.jpeg)
 ![smok](https://i.redd.it/thr7ntii1j2h1.jpeg)
+![smok](https://i.redd.it/sfd5hgctnv4h1.jpeg)
+![smok](https://i.redd.it/sb9uer04e22h1.jpg)
 
 ## 2026-04-28
 ![smok](https://warnet.ws/uploads/257feb99e38bbd5d75a32bd8221a4166.jpg)
