@@ -5,6 +5,8 @@ layout: tag
 
 # Done
 
+![nicola-romanova](https://i.redd.it/xrl2odsup96h1.jpg)
+
 ## Peter Coulson
 
 ![bwnu](https://nevsepic.com.ua/uploads/posts/2011-03/1300582381_12_10_2008_0513224001223825902_peter_coulson_nevsepic.com.ua.jpg)
