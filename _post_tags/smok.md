@@ -2,7 +2,7 @@
 title: smoking
 layout: tag
 ---
-
+![covf-smok](https://i.redd.it/2fosgtsfcx1h1.jpeg)
 ![smok](https://i.redd.it/7tef4719ib5h1.jpeg)
 ![smok](https://i.redd.it/mh0fiu3gkz1h1.jpeg)
 ![smok](https://i.redd.it/2w6ws9mfln1h1.jpeg)
