@@ -2,6 +2,9 @@
 title: covf
 layout: tag
 ---
+𐤏𐤋𐤏𐤋𐤍𐤔𐤁 𐤌𐤋𐤊 𐤀𐤌𐤓 𐤀𐤔 𐤔𐤇𐤌 𐤀𐤓𐤔 𐤋𐤁𐤏𐤋 𐤇𐤌𐤍
+
+![covf](https://i.redd.it/smn0s59ggu2h1.gif)
 ![covf](https://warnet.ws/uploads/9d37858b69e9a2764911e786b01aeab8.png)
 ![covf](https://i0.wp.com/i006.imx.to/i/2025/12/15/6jkk37.jpg)
 ![covf-smok](https://i.redd.it/2fosgtsfcx1h1.jpeg)

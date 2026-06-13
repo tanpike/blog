@@ -9,6 +9,12 @@ layout: tag
 
 ## done
 
+![kelsey-merritt](https://i.redd.it/ktzy23p7qr5h1.jpg)
+
+<div><iframe src="https://media.redgifs.com/FancyMerryIberianmole.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
+
+![hailey-bieber](https://i.redd.it/u0d17ekfp06h1.png)
+
 <div><iframe src="https://media.redgifs.com/CoarseNuttyHornedtoad.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
 <div><iframe src="https://media.redgifs.com/ElectricBeigeChinesecrocodilelizard.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>

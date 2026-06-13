@@ -2,6 +2,12 @@
 title: smoking
 layout: tag
 ---
+
+
+
+<div><iframe src="https://media.redgifs.com/GreatInexperiencedCaimanlizard.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe>Kate Miner - Shameless</div>
+
+
 ![covf-smok](https://i.redd.it/2fosgtsfcx1h1.jpeg)
 ![smok](https://i.redd.it/7tef4719ib5h1.jpeg)
 ![smok](https://i.redd.it/mh0fiu3gkz1h1.jpeg)
