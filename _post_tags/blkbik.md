@@ -11,6 +11,7 @@ layout: tag
 ![blkbik](https://i.redd.it/z9v3uzy3zo7h1.jpeg)
 ![blkbik](https://i.redd.it/vto307jgqv7h1.png)
 ![blkbik](https://i.redd.it/q5w60jbk8j7h1.jpeg)
+![blkbik](https://i.redd.it/qgh3bvb5is2h1.jpg)
 
 <div><iframe src="https://media.redgifs.com/NavyblueDotingIrishterrier.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 

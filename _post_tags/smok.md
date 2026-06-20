@@ -3,7 +3,7 @@ title: smoking
 layout: tag
 ---
 
-
+![smok](https://i0.wp.com/64.media.tumblr.com/df1e14b660e69b45f60cd8a13d140b76/c7c3317af4fad8e0-2b/s2048x3072/d3ffc8737f77a56ed741c862712423c848bf5491.jpg)
 
 <div><iframe src="https://media.redgifs.com/GreatInexperiencedCaimanlizard.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe>Kate Miner - Shameless</div>
 
