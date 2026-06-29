@@ -4,7 +4,7 @@ layout: tag
 ---
 𐤋𐤓𐤁𐤕 𐤋𐤕𐤍𐤕 𐤐𐤍 𐤁𐤏𐤋 𐤅𐤋𐤀𐤃𐤍 𐤋𐤁𐤏𐤋 𐤇𐤌𐤍
 
-
+![covf](https://i.redd.it/i1vczivmy59h1.jpg)
 ![covf](https://i.redd.it/cjglshg4v87h1.jpg)
 ![covf](https://cdn6.babeherder.com/repo-0002/babes/2017/10/22/00000029-full.jpg)
 ![covf](https://i.redd.it/smn0s59ggu2h1.gif)
