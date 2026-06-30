@@ -6,7 +6,7 @@ layout: tag
 # Black Bikinis
 
 ![blkbik](https://i.redd.it/e8xreixrka2h1.jpg)
-
+![blkbik](https://i.redd.it/c3rz1000qv0h1.jpg)
 
 ## Nicola Cavanis
 
@@ -15,7 +15,7 @@ layout: tag
 ![blkbik](https://i.redd.it/6n2f6asg77ah1.jpg)
 
 ## misc
-<div><iframe src="https://media.redgifs.com/ClearRectangularElver.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></di
+<div><iframe src="https://media.redgifs.com/ClearRectangularElver.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
 <div><iframe src="https://media.redgifs.com/SubtleMaleFennecfox.mp4" width=504 height=504 style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true" referrerpolicy="no-referrer"></iframe></div>
 
